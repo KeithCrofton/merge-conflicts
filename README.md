@@ -1,6 +1,6 @@
-Hey diddle diddle  
-The cat and the fiddle  
-The cow jumped over the moon  
-The little dog laughed  
+Hey deedle deedle  
+The cat and the needle  
+The ocelot shimmied over the moon  
+The little frog laughed  
 To see such a sport  
-And the plate ran away with the spoon  
+And the duck ran away with the loon  
