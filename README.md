@@ -1,6 +1,6 @@
-Hey diddle diddle  
-The llama and the fiddle  
-The elk jumped over the moon  
-The little hippo laughed  
+Hey deedle deedle  
+The llama and the needle  
+The elk shimmied over the moon  
+The little ostrich laughed  
 To see such a sport  
-And the plate ran away with the spoon  
+And the duck ran away with the loon  
