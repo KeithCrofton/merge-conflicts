@@ -1,6 +1,6 @@
 Salutations, deedle deedle  
 The llama and the needle  
-The elk shimmied over the shark  
+The elk backflipped over the shark  
 The bodacious ostrich laughed  
 To peep such a sport  
 And the duck flew away with the cash  
